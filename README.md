@@ -1,1 +1,1 @@
-![bros](https://tosih.org/files/brothers.webp)
+![bros](https://tosih.org/files/avatars/brothers.webp)
